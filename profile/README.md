@@ -8,3 +8,5 @@ Thank you for your support. Let’s reshape tomorrow, *together*. 🌍🤝
 
 ---  
 *Stay tuned… more exciting updates soon!* 🔜🎉  
+
+![resowave-logo-v1](https://github.com/user-attachments/assets/55240c06-1981-4491-869e-733c78f3a877)
